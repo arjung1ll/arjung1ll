@@ -41,15 +41,13 @@ I'm an economics and data science student with a focus on applying quantitative 
 
 ## Experience
 
-**Deloitte** — Spring Into Tax & Audit Intern *(Apr 2025)*
+**Deloitte** — Intern *(Jun 2026-July 2026)*
 
 **MKC Wealth** — Intern *(Sep 2025)*
 
 **IBS Student Investment Fund** — Analyst, TMT Team *(Nov 2025–Present)*
 
 **Surrey County Cricket Club** — 2nd XI Player *(Oct 2022–Sep 2024)*
-
-**Eastern Suburbs Cricket Club** — Cricket Coach *(Oct 2023–Mar 2024)*
 
 ---
 
